@@ -1,4 +1,4 @@
-# 
+# Descript for macOS updated Overlay: proxy-editing & lower-thirds offers the most advanced Descript for macOS overlay, with proxy-editing and lower-thirds. Ideal for professional
 
 
 
